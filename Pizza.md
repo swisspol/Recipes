@@ -17,7 +17,7 @@ Cornmeal |
 1. In a small bowl, combine warm water, sugar and yeast
 2. Combine bread and all purpose flour into mixer bowl
 3. Make a well in center and pour in yeast mixture
-4. Use doug hook and beat on high speed until dough comes together and slaps the side of the bowl
+4. Use mixer's doug hook and beat on high speed until dough comes together and slaps the side of the bowl
 5. Split the dough in half then form into balls (lightly dust them with extra flour)
 6. Put in lightly oiled plastic bags then seal
 7. Refrigerate overnight
