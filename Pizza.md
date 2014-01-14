@@ -4,6 +4,8 @@ Pizza
 Pizza Dough
 -----------
 
+Ingredients
+
 * Generous pinch of sugar
 * 1 1/4 cup of warm water (~110ºF)
 * 1/4 oz dry yeast
@@ -12,6 +14,8 @@ Pizza Dough
 * 1 tsp seat salt
 * Olive oil
 * Cornmeal
+
+Steps
 
 1. In a small bowl, combine warm water, sugar and yeast
 2. Combine bread and all purpose flour into mixer bowl
@@ -24,11 +28,15 @@ Pizza Dough
 Pizza
 -----
 
+Ingredients
+
 * Fresh mozzarella
 * Anchovies
 * Basil
 * Grinded pepper
 * Sliced tomatoes
+
+Steps
 
 1. Take the dough out of the refrigerator 2 hours before cooking
 2. Lightly oil 2 bowls then roll dough balls into them
