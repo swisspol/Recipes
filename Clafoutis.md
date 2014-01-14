@@ -10,7 +10,7 @@ Salt | Pinch
 Whole eggs | 3
 All-purpose flour | 1/3 cup
 Fresh fruits e.g. pitted cherries or raspberries | 2 cups
-Powdered sugar for topping |
+Powdered sugar for topping (optional) |
 
 1. Preheat oven to 425ºF
 2. Butter 10-inch quiche mold or pie dish
@@ -21,11 +21,9 @@ Powdered sugar for topping |
 7. Slowly pour milk mixture into egg mixture while whisking constantly
 8. Pour the mixture into quiche mold or pie dish then add fruits (distribute evenly)
 9. Bake until slightly puffed and browned around the outside (30-35 minutes)
-
-*Optional*
-
-10. Remove from oven and turn up temperature to 500ºF
-11. Sprinkle powdered sugar
-12. Return to oven for 5-10 minutes to caramelize sugar (watch carefully)
+10. Optional sugar topping
+  1. Remove from oven and turn up temperature to 500ºF
+  2. Sprinkle powdered sugar
+  3. Return to oven for 5-10 minutes to caramelize sugar (watch carefully)
 
 *Let clafoutis cool for 15 minutes before serving.*
