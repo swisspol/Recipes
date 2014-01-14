@@ -9,8 +9,8 @@ Vanilla bean | 1/2
 Salt | Pinch
 Whole eggs | 3
 All-purpose flour | 1/3 cup
-Powdered sugar for topping |
 Fresh fruits e.g. pitted cherries or raspberries | 2 cups
+Powdered sugar for topping |
 
 1. Preheat oven to 425ºF
 2. Butter 10-inch quiche mold or pie dish
