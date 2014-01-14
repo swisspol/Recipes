@@ -11,11 +11,12 @@ Warm water (~110ºF) | 1 1/4 cup
 Dry yeast | 1/4 oz
 Bread flour | 2 cups
 All-purpose flour | 1 1/4 cups
+Salt | 1 tsp
 Olive oil |
 Cornmeal |
 
 1. In a small bowl, combine warm water, sugar and yeast
-2. Combine bread and all purpose flour into stand mixer's bowl
+2. Combine bread, all purpose flour and salt into stand mixer's bowl
 3. Make a well in center and pour in yeast mixture
 4. Use stand mixer's doug hook and beat on high speed until dough comes together and slaps the side of the bowl
 5. Split the dough in half and form into balls (lightly dust them with extra flour)
