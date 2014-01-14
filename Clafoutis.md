@@ -16,7 +16,7 @@ Powdered sugar for topping (optional) |
 2. Butter 10-inch quiche mold or pie dish
 3. Combine milk, sugar, scraped pods from split vanilla bean lengthwise and salt in small saucepan
 4. Place over medium heat and stir until just under a boil
-5. Combine flour and 1 egg in a mixing bowl then whisk until mixture is free of lumps
+5. Combine flour and 1 egg in a mixing bowl and whisk until mixture is free of lumps
 6. Add remaining 2 eggs and whisk until smooth
 7. Slowly pour milk mixture into egg mixture while whisking constantly
 8. Pour the mixture into quiche mold or pie dish then add fruits (distribute evenly)
