@@ -10,7 +10,7 @@ Whole eggs (room temperature) | 2
 All-purpose flour | 3 1/2 cups
 
 1. Combine butter, sugar and salt in a stand mixer's bowl
-2. Mix on medium-speed until smooth then add eggs one by one and mix until smooth
+2. Mix on medium-speed with paddle attachment until smooth then add eggs one by one and mix until smooth
 3. Stop mixer and scrape sides of the bowl
 4. Add flour all at once then mix low-speed until incorporated
 5. Divide dough in 4 equal balls on lightly floured work surface and shape into disks 1/2 inch thick
