@@ -16,7 +16,7 @@ Unsalted butter (very cold) | 1 cup
 6. Toss with fork until dough comes together in shaggy mass
 7. Gently mix until dough comes together in a ball (not completely smooth)
 8. Divide dough in 2 equal balls on lightly floured work surface and shape into disks 1 inch thick
-9. Wrap well in plastic wrap and put in refrigerator for 1 hour
+9. Wrap well in plastic wrap and put in refrigerator for 1 to 2 hours
 10. Place disk of dough on lightly floured work surface and roll out 1/8 inch thick (roll from center towards edges)
 11. Transfer to pie dish or tart pan, pressing gently into place
 12. Trim the dough with sharp knife (leave 1/2 inch overhang for pie dish)
