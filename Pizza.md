@@ -37,7 +37,7 @@ Sliced tomatoes |
 2. Lightly oil 2 bowls then roll dough balls into them
 3. Cover the bowls tightly with plastic wraps
 4. Set aside in a warm place for 2 hours
-5. Pre-warm oven with pizza stone 45 minutes before to 500ºF (convection + bottom heat)
+5. Preheat oven with pizza stone 45 minutes before to 500ºF (convection + bottom heat)
 6. Stretch and lay dough as discs on a countertop dusted with flour
 7. Add slices of mozzarella (spaced not too far apart and all the way to the edge) and anchovies
 8. Generously dust pizza peel with cornmeal and make sure dough slides easily
