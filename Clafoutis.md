@@ -26,4 +26,4 @@ Powdered sugar for topping (optional) |
   2. Sprinkle powdered sugar
   3. Return to oven for 5-10 minutes to caramelize sugar (watch carefully)
 
-*Let clafoutis cool for 15 minutes before serving.*
+*Let cool for 15 minutes before serving.*
