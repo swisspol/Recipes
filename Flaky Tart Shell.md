@@ -1,4 +1,4 @@
-Flaky Tart Dough
+Flaky Tart Shell
 ================
 
 Ingredient | Quantity
