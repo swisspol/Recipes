@@ -8,7 +8,7 @@ Whole eggs | 3
 Egg yolk | 1
 Sugar | 1/2 cup
 Salt | Pinch
-Unsalted butter (cool) | 1 cup
+Unsalted butter (cold) | 1 cup
 
 1. Pour 2 inches of water into saucepan, place over medium-heat and bring to a simmer
 2. Whisk lemon juice, eggs, egg yolk, sugar and salt in stainless-steel mixing bowl (don't let sit together without stirring)
