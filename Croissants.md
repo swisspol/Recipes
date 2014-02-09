@@ -7,7 +7,7 @@ Preferment
 Ingredient | Quantity
 ---|---
 Nonfat milk | 3/8 cups
-Active dry yeast | 1/2 tsp
+Active dry yeast | 1/2 tbsp
 All-purpose flour | 2/3 cup
 
 1. Warm milk in small saucepan to 80-90ºF
