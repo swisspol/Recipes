@@ -13,7 +13,6 @@ Bread flour | 2 cups
 All-purpose flour | 1 1/4 cups
 Salt | 1 tsp
 Olive oil |
-Cornmeal |
 
 1. In a small bowl, combine warm water, sugar and yeast
 2. Combine bread, all purpose flour and salt into stand mixer's bowl
@@ -33,6 +32,7 @@ Anchovies |
 Basil |
 Grinded pepper |
 Sliced tomatoes |
+Cornmeal |
 
 1. Take the dough out of the refrigerator 2 hours before cooking
 2. Lightly oil 2 bowls then roll dough balls into them
