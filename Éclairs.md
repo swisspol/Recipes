@@ -26,10 +26,8 @@ Whole eggs | 5
 9. Use pastry bag with large plain tip to pipe out fingers on baking sheet about 5 inches long and 1 inch wide, spaced 2 inches apart (smooth tails with a damp fingertip)
 10. Bake until puffed and starting to show some color (about 10 minutes)
 11. Reduce oven temperature to 375ºF and continue to bake until shells feel light, hollow inside and nicely browned all over (about 12 minutes)
-12. Remove from oven and poke small holes at each end of the shells using a metal skewer to allow steam to escape
-13. Let the shells cool until just warm
-14. Use pastry bag with very small plain tip to fill shells with pastry cream from both ends (or split shells in half with serrated knife and spoon the pastry cream on bottom half after glazing upper half)
-15. Dip the top of each éclair to glaze then shake gently to allow excess glaze to drip off
+12. Use pastry bag with very small plain tip to fill shells with pastry cream from both ends (or split shells in half with serrated knife and spoon the pastry cream on bottom half after glazing upper half)
+13. Dip the top of each éclair to glaze then shake gently to allow excess glaze to drip off
 
 Glaze
 -----
@@ -45,4 +43,3 @@ Heavy cream | 1/4 cup
 2. Stir gently until smooth and shiny
 3. Transfer to deep dish
 4. Let cool to room temperature
-5. Dip éclairs then shake gently to remove extra
