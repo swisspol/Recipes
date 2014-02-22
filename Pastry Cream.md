@@ -20,3 +20,4 @@ Unsalted butter | 4 tbsp
 7. Let cool for 10 minutes stirring occasionally to release heat (temperature should be about 140ºF)
 8. Whisk butter into pastry cream 1 tbsp at a time
 9. Cover bowl with plastic wrap, pressing wrap directly on top of cream
+7. Let cool outside 1 hour then put in refrigerator
