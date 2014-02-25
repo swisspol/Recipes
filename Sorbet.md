@@ -4,7 +4,7 @@ Sorbet
 Ingredient | Quantity
 ---|---
 Water | 3/4 cup
-Sugar | 3/4 cup
+Sugar | 1/2 cup
 Fruit juice | 1 1/2 cups
 Egg white | 1
 
