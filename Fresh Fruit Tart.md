@@ -6,9 +6,9 @@ Ingredient | Quantity
 [Sweet tart shell](Sweet Tart Shell.md) (cooled) | 1
 [Pastry cream](Pastry Cream.md) | 2 1/2 cups
 Fresh fruits e.g. raspberries or peaches | 2 to 4 cups
-Lemon juice | 2 tbsp
-Orange juice | 2 tbsp
-Sugar | 1/2 cup
+Lemon juice | 1 tbsp
+Orange juice | 1 tbsp
+Sugar | 1/4 cup
 
 1. Spoon pastry cream into tart shell and smooth surface with rubber spatula (fill until 3/4 full)
 2. Top with fruits
