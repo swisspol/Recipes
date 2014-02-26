@@ -6,7 +6,7 @@ Ingredient | Quantity
 Reduced fat milk | 2 cups
 Vanilla bean | 1/2
 Salt | 1/4 tsp
-Cornstarch | 3 tbsp
+Cornstarch | 3 1/2 tbsp
 Sugar | 1/4 cup
 Whole Eggs | 2
 Unsalted butter | 4 tbsp
