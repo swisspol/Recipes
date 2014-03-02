@@ -20,10 +20,10 @@ Powdered sugar for topping (optional) |
 6. Add remaining 2 eggs and whisk until smooth
 7. Slowly pour milk mixture into egg mixture while whisking constantly
 8. Pour the mixture into quiche mold or pie dish then add fruits (distribute evenly)
-9. Bake until slightly puffed and browned around the outside (30-35 minutes)
+9. Bake until slightly puffed and browned around the outside (25-30 minutes)
 10. Optional sugar topping
   1. Remove from oven and turn up temperature to 500ºF
   2. Sprinkle powdered sugar
-  3. Return to oven for 5-10 minutes to caramelize sugar (watch carefully)
+  3. Return to oven for 5 minutes to caramelize sugar (watch carefully)
 
 *Let cool for 15 minutes before serving.*
