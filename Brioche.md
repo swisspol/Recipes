@@ -56,7 +56,7 @@ Salt | Pinch
 1. Brush 3 9x5 inch loaf pans with melted butter
 2. Place dough on lightly floured work surface, divide in 3 rectangles then put in pans (pans should be no more than 1/3rd full)
 3. Place pans in draft-free area with relatively high humidity and ideal temperature of 75-80ºF
-4. Let rise until doubled in size (2-3 hours)
+4. Let rise until doubled in size (1 1/2 hour to 2 hours in room but faster in oven with small saucepan of hot water)
 5. Preheat oven to 425ºF for at least 20 minutes
 6. Whisk together egg yolks, heavy cream and salt in a mixing bowl
 7. Brush yolk mixture on the top of the loaves and let dry for 10 minutes
