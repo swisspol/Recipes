@@ -19,7 +19,7 @@ Powdered sugar for topping (optional) |
 5. Combine flour and 1 egg in a mixing bowl and whisk until mixture is free of lumps
 6. Add remaining 2 eggs and whisk until smooth
 7. Slowly pour milk mixture into egg mixture while whisking constantly
-8. Blend until smooth with immersion mixer
+8. Blend until smooth with handdheld mixer
 9. Pour the mixture into quiche mold or pie dish then add fruits (distribute evenly)
 10. Bake until a skewer inserted into batter comes out clean and a golden brown crust has formed on top and bottom of clafoutis, about 30 minutes
 11. Optional sugar topping
