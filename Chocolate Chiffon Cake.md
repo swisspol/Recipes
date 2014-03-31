@@ -9,11 +9,11 @@ Sugar | 3/4 cup
 Backing powder | 2 tsp
 Salt | 3/4 tsp
 Vegetable oil | 1/2 cup
-Egg yolks | 6
+Egg yolks | 6 (room temperature)
 Water | 3/4 cup
 Lemon juice | 1/4 cup
 Lemon zest (grated) | From 1 medium lemon
-Egg whites | 10
+Egg whites | 10 (room temperature)
 Lemon juice | 1/4 tsp
 
 1. Preheat oven to 325ºF
