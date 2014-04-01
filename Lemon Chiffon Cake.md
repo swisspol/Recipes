@@ -26,6 +26,6 @@ Lemon juice | 1/4 tsp
 9. With spatula, scoop one third of the whites onto yolk mixture and fold in gently
 10. Fold in remaining whites until combined
 11. Pour batter into springform pan
-12. Bake until an inserted cake tester is clean (45 to 55 minutes)
+12. Bake until an inserted cake tester is clean (50 minutes or more)
 
-*Let cool on wire racks, then remove pan sides and peel off parchment paper. If needed, split into layers using a serated knife.*
+*Let cool on wire racks, then remove pan sides after running a thin knife around the sides and peel off parchment paper. If needed, split into layers using a serated knife.*
