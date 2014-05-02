@@ -5,7 +5,7 @@ Ingredient | Quantity
 ---|---
 All-purpose flour | 1 3/4 cups
 Cocoa powder | 1/2 cup
-Sugar | 3/4 cup
+Sugar | 1 1/4 cup
 Backing powder | 2 tsp
 Salt | 3/4 tsp
 Vegetable oil | 1/2 cup
