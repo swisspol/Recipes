@@ -9,8 +9,8 @@ Ingredient | Quantity
 Water | 1/3 cup
 Sugar | 1/3 cup
 Lemon Juice | 1/3 cup
-Egg whites | 7
-Sugar | 1 1/2 cup
+Egg whites | 4
+Sugar | 1 cup
 Salt | Pinch
 
 1. Prepare lemon Syrup
