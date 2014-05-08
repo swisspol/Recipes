@@ -10,7 +10,7 @@ Salt | 3/4 tsp
 Vegetable oil | 1/2 cup
 Egg yolks | 6 (room temperature)
 Water | 1/2 cup
-Lemon juice | 1/4 cup
+Lemon juice | 1/2 cup
 Lemon zest (grated) | 1 1/2 tsp
 Egg whites | 9 (room temperature)
 
