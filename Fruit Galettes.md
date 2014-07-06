@@ -7,7 +7,7 @@ Unsalted butter (very cold) | 1 1/2 cups
 Water | 1 cup
 Salt | 1 1/2 tsp
 All-purpose flour | 2 1/3 cups
-Pastry flour (or all-purpose flour) | 2 1/3 cups
+Pastry flour (or all-purpose flour) | 2 cups
 Fruits | 6 cups
 Granulated or brown sugar |
 Lemon juice (if using apples or pears) |
