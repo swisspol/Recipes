@@ -13,7 +13,7 @@ All-purpose flour | 3 1/2 cups
 2. Mix on medium-speed with paddle attachment until smooth then add eggs one by one and mix until smooth
 3. Stop mixer and scrape sides of the bowl
 4. Add flour all at once then mix low-speed until incorporated
-5. Roll dough in large cylinder, divide in 4 equal parts, then roll as balls on lightly floured work surface and shape into disks 1/2 inch thick
+5. Roll dough in large cylinder, divide in 4 equal parts for 9 inches pie dishes (or 3 parts for larger dishes), then roll as balls on lightly floured work surface and shape into disks 1/2 inch thick
 6. Wrap well in plastic wrap and put in refrigerator for 1 to 2 hours
 7. Place disk of dough on lightly floured work surface and roll out 1/8 inch thick (roll from center towards edges)
 8. Transfer to pie dish or tart pan, pressing gently into place (do not stretch the dough or sides will shrink during baking)
