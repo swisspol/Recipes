@@ -43,7 +43,7 @@ Unsalted butter (cool but pliable) | 2 cup
 14. Transfer dough to lightly floured work surface and roll out into a section of 28 x 12 inches
 15. Spread butter over the first 2 thirds along longest side
 16. Fold the unbuttered third over then fold the first third over and push down along the seams to seal plaque
-17. Rotate plaque by 90 degrees and roll out again to 14 x 12 inches
+17. Rotate plaque by 90 degrees and roll out again to 28 x 12 inches
 18. Fold again as in step #16
 19. Wrap in plastic wrap and put in refrigerator for 1 hour
 20. Transfer dough to lightly floured work surface and roll out to 28 x 12 inches
@@ -64,7 +64,7 @@ Salt | Pinch
   - Cut into long triangles 4 x 12 inches, then roll them from base to point, stretching point at the end and tucking it underneath
   - Or cut into 4 x 6 rectangle, insert a chocolate baton and roll with the baton in the center
 3. Place on sheet pan lined with parchment paper
-4. Put in cold oven along with small pan of boiling water until doubled in size and noticably puffy (1 to 2 hours)
+4. Put in cold oven along with half a small pan of boiling water until doubled in size and noticably puffy (30 mn to 2 hours)
 5. Remove from oven and preheat to 425ºF for at least 20 minutes
 6. Whisk together egg yolks, cream and salt in small bowl
 7. Brush yolk mixture on pastries and let dry for 10 minutes
