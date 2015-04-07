@@ -3,7 +3,6 @@ Ginger Ale
 
 Ingredient | Quantity
 ---|---
-Ingredients
 Grated fresh ginger | 1 1/2 ounces
 Sugar | 3/4 cup
 Filtered water | 7 1/2 cups
