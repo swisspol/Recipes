@@ -16,7 +16,7 @@ Egg whites | 10 (room temperature)
 
 1. Preheat oven to 325ºF
 2. Line bottom of 10 inch springform pan with parchment paper cut to fit exactly
-3. Whisk together flour, baking powder, cocoa powder, 1/2 cup sugar and salt in large mixing bowl
+3. Whisk together flour, baking powder, cocoa powder, 1 cup sugar and salt in large mixing bowl
 4. Whisk together oil, **egg yolks**, water and lemon zest in a small mixing bowl
 5. Make well in flour then add the yolk mixture and whisk thorougly and quickly (about 1 minute)
 6. Using a hand mixer on medium speed, whisk together **egg whites** in large mixing bowl until they hold soft peaks
