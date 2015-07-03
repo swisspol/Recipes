@@ -23,7 +23,7 @@ Ingredient | Quantity
 ---|---
 Unsalted butter | 3 tbsp
 Flour | 1/3 cup
-Milk | 1/2 cup
+Milk | 2 cups
 Ground nutmeg | 1/4 tsp
 Salt & Pepper | -
 
