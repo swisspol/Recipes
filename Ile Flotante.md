@@ -8,7 +8,7 @@ Sugar | 1/2 cup
 Salt | Pinch
 Vanilla Extract | 1 tsp
 
-1. Pre-heat oven to 230ºF
+1. Pre-heat oven to 250ºF
 2. Line sheet pans with parchment paper
 3. Beat the egg whites, salt, and cream of tartar in the bowl of mixer fitted with the whisk attachment on medium speed until frothy
 4. Turn the mixer on high speed and add sugar and vanilla extract
