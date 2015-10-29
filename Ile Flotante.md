@@ -33,6 +33,8 @@ Vanilla Extract | 1/2 tsp
 Creme Anglaise
 ==============
 
+Ingredient | Quantity
+---|---
 Egg yolks | 4
 Sugar | 1/2 cup
 Cornstarch | 1 tsp
