@@ -4,12 +4,12 @@
 Ingredient | Quantity
 ---|---
 Finely grated Parmesan cheese | 2 tbsp
-While milk | 1 cup
+Whole milk | 1 cup
 Unsalted butter | 2 1/2 tbsp
 Unbleached all purpose flour | 3 tbsp
 Egg yolks | 4
 Egg whites | 5
-Coarsely grated Gruyère cheese | 1 cup
+Coarsely grated Gruyère cheese | 1 1/2 cup
 Paprika | 1/2 tsp
 Salt | 1/2 tsp
 Ground nutmeg | Pinch
