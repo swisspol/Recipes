@@ -1,8 +1,10 @@
-- 1 cup dried boba tapioca pearls
-- 8 cups of water
+Ingredient | Quantity
+---|---
+Dried boba tapioca pearls | 1 cup
+Water | 8 cups
 
 - Bring the water to a boil over high heat
-- Add the boba and stir gently until they begin floating to the top of the water
+- - Add the boba and stir gently until they begin floating to the top of the water
 - Turn the heat to medium and cook the boba for 12 to 15 minutes
 - Remove the pan from heat, cover, and let the pearls sit for another 12 to 15 minutes
 - Once the boba have finished cooking, drain them from the water and transfer them to a small bowl or container
