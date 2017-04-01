@@ -3,12 +3,6 @@ Mousse au Chocolat
 
 Ingredient | Quantity
 ---|---
-Semolina fine | 2/3 cup
-Sugar | 1/3 cup
-Rum | 2 tbsp
-Milk | 2 1/2 cups
-Vanilla Pod | 1/2
-
 Chocolate | 150g (5.3 oz)
 Casterered (superfine) Sugar | 1/2 cup
 Double / Heavy Cream | 0.17 cup (40 ml)
